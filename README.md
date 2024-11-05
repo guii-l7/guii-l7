@@ -4,4 +4,3 @@
 - 💞️ I love programming!
 - 📫 How to reach me: Insta - @guii.l7
 - ⚡ Fun fact: I like playing soccer and I love playing fighting and car racing games in my free time.
-
